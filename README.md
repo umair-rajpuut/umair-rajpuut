@@ -1,0 +1,4 @@
+- Hi, I’m @umair-rajpuut
+- I’m currently learning BSCS, Web-devolopment, Graphic Designing amd many more
+- I’m looking for a internship 
+- You can reach me at umairrajpoot211@gmail.com
